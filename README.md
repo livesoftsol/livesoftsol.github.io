@@ -1,1 +1,0 @@
-# livesoftsol.github.io
